@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @franksswu
-- 👀 I’m interested in science and technology
+- 👀 I’m interested in science and technology,Biology...
 - 🌱 I’m currently learning ...
 
 <!---
